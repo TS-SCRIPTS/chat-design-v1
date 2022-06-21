@@ -2,7 +2,7 @@
 
 ESX Chat design by TS#3462
 
-・| Discord: https://discord.gg/Suh7hfwwXV
+・| Discord: https://discord.gg/7FKDQmgVnJ
 
 ・| Preview:
 
